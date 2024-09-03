@@ -3,7 +3,6 @@
 안녕하세요~!~!
 
 ### 📫 How to reach me
-e-mail : kig0824@g.skku.edu  
 e-mail : idmatthew9546@gmail.com
 
 
