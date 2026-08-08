@@ -3,7 +3,7 @@
 안녕하세요~!~!
 
 ### 📫 How to reach me
-e-mail : idmatthew9546@gmail.com
+
 
 
 
